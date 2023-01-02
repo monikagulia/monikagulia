@@ -1,0 +1,4 @@
+- 👋 Hi, I’m monikagulia
+- 👀 intrests-reading,cooking,now in coding
+- 🌱 I’m currently learning phyton,sql,excel
+- 📫 u can reach me by my gamil"monikagulia0216@gmail.com"
